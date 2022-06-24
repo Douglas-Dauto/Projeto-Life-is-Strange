@@ -1,1 +1,1 @@
-# Projeto-Life-is-Strange
+# Life-is-Strange
